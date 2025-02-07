@@ -1,11 +1,10 @@
 ## Hi there I'm PETE 👋
 
 
-- 🔭 I’m currently working on Money
-- 🌱 I’m currently learning Life Lessons
-- 👯 I’m looking to collaborate on ECu Tunning
-- 🤔 I’m looking for help with making money
+- 🔭 I’m currently working on Myself
+- 🌱 I’m currently learning ME
+- 👯 I’m looking to collaborate on ECu Tuning
+- 🤔 I’m looking for someone who helps me with making money
 - 💬 Ask me about Cars
-- 📫 How to reach me: @pete396
-- 😄 Pronouns: Attac/Helicopter
-- ⚡ Fun fact: Cooked a Donut
+- 📫 How to reach me: @_pete396
+- ⚡ Fun fact: love's Donut
